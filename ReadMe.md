@@ -1,5 +1,5 @@
 # 💫 About Me:
-19 anos, cianortense, estudante de Análise e Desenvolvimento de Sistemas e muito curioso!
+20 anos, cianortense, estudante de Análise e Desenvolvimento de Sistemas e muito curioso!
 
 
 ## 🌐 Socials:
